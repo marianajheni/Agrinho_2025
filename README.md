@@ -1,1 +1,1 @@
-# Agrinho_2025
+É uma forma simples e divertida de entender que a comida que chega na nossa mesa e os produtos que usamos no dia a dia são o resultado direto do esforço e da dedicação de quem trabalha no campo. E tudo isso está conectado, formando a grande teia que nos une.
